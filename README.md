@@ -51,21 +51,25 @@
 ### 8 - Fraud
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/fr4ud0fag0d
   #### Fraud - Bolgia I
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/???
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/panderersandseducers
   #### Fraud - Bolgia II
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/flatterers
   #### Fraud - Bolgia III
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/???
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/simoniacs
   #### Fraud - Bolgia IV
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/???
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/sorcerers
   #### Fraud - Bolgia V
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/barrators
   #### Fraud - Bolgia VI
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/???
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/hypocrites
   #### Fraud - Bolgia VII
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/???
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/thieves
   #### Fraud - Bolgia VIII
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/counselorsoffraud
+  ### Fraud - Bolgia IX
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/sowersofdiscord
+  ### Fraud - Bolgia X
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/falsifiers
   #### Associated URLs:
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/??? (**Feodoric the Fraud**)
 ---
