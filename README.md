@@ -46,7 +46,7 @@
 ### 7 - Violence III
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/???
   #### Associated URLs:
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/c0mplet3lysh3llsh0ck3d
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/c0mplet3lysh3llsh0ck3d (**Shock and Awe**)
 ---
 ### 8 - Fraud
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/fr4ud0fag0d
