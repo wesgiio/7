@@ -31,6 +31,7 @@
 - lmao you got fucked
   #### Associated URLs:
 - [TOTALLY NOT SUSPICIOUS LINK](https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/y0uar3an1d10thahahahaha.html)
+- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/c0mplet3lysh3llsh0ck3d (**Shock and Awe**)
 ---
 ### 6 - Heresy I
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/bloodofjapan
@@ -45,8 +46,6 @@
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/fac1ngon3self
 ### 7 - Violence III
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/???
-  #### Associated URLs:
-- https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/c0mplet3lysh3llsh0ck3d (**Shock and Awe**)
 ---
 ### 8 - Fraud
 - https://burningdroppers.nekoweb.org/descentintomadness/overwhelminginsanity/th1ngsaregettingheated/fr4ud0fag0d
